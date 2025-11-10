@@ -11,7 +11,6 @@
 
 - 📫 How to reach me **m7xvoltx@gmail.com**
 
-- ⚡ Fun fact **my windows 98 crashed**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
