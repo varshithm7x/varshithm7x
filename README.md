@@ -9,6 +9,8 @@
 
 - 💬 Ask me about **JS,MERN,Python,Next**
 
+- 💬 Fun Fact **I forget to Push changes to my personal Github Repositories frequently**
+
 - 📫 How to reach me **m7xvoltx@gmail.com**
 
 
